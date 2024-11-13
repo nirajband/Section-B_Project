@@ -16,7 +16,7 @@ Member 6. Sania Sheikh (GHRCE) (sania.sheikh.it.@ghrce.raisoni.net)
 
 **Mentor**
 
-Mr. Anirvainya Gururajan (International Institute of Information Technology,Hyderabad,Telangana,India)
+Mr. Anirvinya Gururajan (International Institute of Information Technology,Hyderabad,Telangana,India)
 
 **Project Information**
 
